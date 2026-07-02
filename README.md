@@ -1,0 +1,1 @@
+# squishling-champions-pages
